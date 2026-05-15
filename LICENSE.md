@@ -1,4 +1,4 @@
-
+Enhance your PrivateVPN experience with rare PrivateVPN Extension | double-VPN + L2TP-support, the #1 extension. Includes double-VPN and L2TP-support for a safer and more private
 
 
 
